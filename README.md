@@ -6,17 +6,17 @@
 ⚠温馨提示：网址前一定要添加“ https:// ”，能更顺畅访问。
 最新启用地址：（请保存2-3个，防止丢失，保存的越多越好）
 
-:heart: :point_right: 【最新地址1】 ：https://www.csmen31.com
+:heart: :point_right: 【最新地址1】 ：https://www.buliang100.com
 ------
-:heart: :point_right: 【最新地址2】 ：https://www.csmen32.com
+:heart: :point_right: 【最新地址2】 ：https://www.buliang200.com
 ------
-:heart: :point_right: 【最新地址3】 ：https://www.csmen37.com
+:heart: :point_right: 【最新地址3】 ：https://www.buliang300.com
 ------
-:heart: :point_right: 【最新地址4】 ：https://www.csmen.top
+:heart: :point_right: 【最新地址4】 ：https://www.buliang.icu
 ------
-:heart: :point_right: 【最新地址5】 ：https://www.csmen.click
+:heart: :point_right: 【最新地址5】 ：https://www.buliang.click
 ------
-:heart: :point_right: 【最新地址6】 ：https://www.csmen.icu
+:heart: :point_right: 【最新地址6】 ：https://www.buliang.buzz
 ------
 :sparkles:重要提醒:sparkles:收藏2-3个以上发布页面，越多越好！避免迷路！
 ==
